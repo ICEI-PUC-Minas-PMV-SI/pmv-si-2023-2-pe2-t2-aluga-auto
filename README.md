@@ -262,3 +262,8 @@ romulochavesferraz@gmail.com
 
 &nbsp;&nbsp;&nbsp;&nbsp;VIEIRA, R. A. Locação de veículos: segmento apresenta retomada e tem tecnologia e experiência como tendências centrais para os próximos anos. Disponível em: <https://solution4fleet.com.br/editorial/locacao-de-veiculos-segmento-apresenta-retomada-e-tem-tecnologia-e-experiencia-como-tendencias-centrais-para-os-proximos-anos/>. Acesso em: 24 ago. 2023. 
 
+---
+
+## Professora
+
+* Rosilane Ribeiro da Mota.
